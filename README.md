@@ -1,0 +1,1 @@
+# rdili-guzfinal-odevi
